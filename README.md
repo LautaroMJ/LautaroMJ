@@ -1,0 +1,2 @@
+- 👋 Hola, mi nombre es Lautaro. 
+- 🌱 Actualmente estudio Licenciatura en Sistemas en la UNLP 
